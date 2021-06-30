@@ -1,0 +1,1 @@
+O curso superou expectativas, tudo está muito bem organizado. Desde os desafios, as aulas, até a comunicação no slack, atenção dos yellow-belts para sanar dúvidas. Parabéns aos envolvidos!
